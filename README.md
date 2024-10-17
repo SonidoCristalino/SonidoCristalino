@@ -1,4 +1,4 @@
-- The only important thing you have to know about me is that I rob many memes ... 👀 
+- The only important thing you have to know about me is that I steal too many memes ... 👀 
 
 <!---
 SonidoCristalino/SonidoCristalino is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
